@@ -1,6 +1,6 @@
 # tugaspemrog-mobile
 
-## dikit lagi pak tinggal rrekam layar max 1 jam lagi
-![img](https://github.com/luffy-arc/tugaspemrog-mobile/blob/main/Screenshot%20(62).png)
+## ytugas pt 9
 
-Uploading Screen_recording_20231124_142218.mp4…
+
+https://github.com/luffy-arc/tugaspemrog-mobile/assets/115520477/9d3deed0-937a-413e-8172-25ae7fc0be25
